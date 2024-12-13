@@ -2,7 +2,15 @@
 
 En las últimas horas un nuevo fenómeno social se ha apoderado de las redes sociales, se trata del video viral de Vitaly Sánchez y Jenn Quezada, donde se muestra en escenas comprometedoras, lo que ha causado un inmedible interés en sus seguidores, principalmente en X, (antes Twitter).
 
-La controversia del metraje se ha convertido en un debate en diversas comunidades sociales, después que surgieran los rumores de un supuesto trío entre la influencer Vitaly, Jenn y Dj Sammy, hechos por Jenn mediante una entrevista en "Sin filtro show".
+
+📺📱👉◄◄🔴  https://tinyurl.com/yp47mzch
+
+📺📱👉◄◄🔴  https://tinyurl.com/yp47mzch
+
+📺📱👉◄◄🔴  https://tinyurl.com/yp47mzch
+
+📺📱👉◄◄🔴  https://tinyurl.com/yp47mzch
+
 
 A pesar de los argumentos de Jenn en torno a las grabaciones íntimas Dj Sammy ha puesto en cuestión las afirmaciones de la artista, manifestando que tal encuentro no ocurrió y que todo se trata de falsedades de Quezada para ganar popularidad.
 
